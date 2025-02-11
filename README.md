@@ -1,1 +1,0 @@
-# linux_books_Shotts_komand_stroke
